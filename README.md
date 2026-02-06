@@ -1,2 +1,2 @@
 # translation
-hello
+hello bitch 
